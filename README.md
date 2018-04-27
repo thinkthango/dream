@@ -1,2 +1,3 @@
 # dream
 you would have a dream
+think more,get more...
